@@ -1,0 +1,6 @@
+- yo im sentinel -
+- im interested in developing cheats -
+- im currently learning lua -
+- im looking to collaborate on anything -
+- sentinel.cc on discord -
+- fun fact: im friends with someone -
